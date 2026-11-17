@@ -1,4 +1,4 @@
-# Hi there, I'm Absar Shahbir! 👋
+# Hi there, I'm Absar Shabbir! 👋
 
 **Multi-Disciplinary Professional | App Developer | Web Developer | Graphic Designer**
 
